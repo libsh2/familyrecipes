@@ -17,7 +17,7 @@ One pack of lasagne sheet
 1.5 pints (850 ml) béchamel sauce
 Finely grated parmesan
 Equipment
-One small pan for the bechamel sauce (preferably non-stick)
+**One small pan for the bechamel sauce (preferably non-stick)**
 One large, deep pan for the ragu
 A sha
 
